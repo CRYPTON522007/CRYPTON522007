@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CRYPTON522007
+- 👋 Hi, I’m CRYPTON
 - 👀 I’m interested in ...(ANIME, CODING, READING FICTIONS, MATHS)
 - 🌱 I’m currently learning ...(How to life life without regrets)
 - 💞️ I’m looking to collaborate on ...(GitHub with way more talented ppl)
